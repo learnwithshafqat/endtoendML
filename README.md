@@ -1,1 +1,1 @@
-Please subscribe to my YT channel.
+Please subscribe to my YT channel. and like the videos
